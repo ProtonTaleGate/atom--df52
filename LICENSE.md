@@ -1,4 +1,4 @@
-# 
+# Enhance Atom for PC | Atom for Windows with vip Atom for PC | Atom for Windows Addon | multiple-cursors + snippets, the #1 addon. Includes multiple-cursors and snippets for a
 
 
 
